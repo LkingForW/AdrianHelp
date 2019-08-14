@@ -1,5 +1,6 @@
 # AdrianHelp
 Adrian is gay 
+Bradly is gay as well
 
 ## Brian Test
 
